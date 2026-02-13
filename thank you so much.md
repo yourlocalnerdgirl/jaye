@@ -1,8 +1,8 @@
 # Thank You!
 
-- [what you did for me](#whatyoudid)
-- [why im even doing this](#whyiam)
-- [how much did you actually make me feel better](#howmuch)
+- [what you did for me](#what-you-did)
+- [why im even doing this](#why-i-am-doing-this)
+- [how much did you actually make me feel better](#how-much-did-this-help)
 
 ## What You Did
 - First of all, just really being there for me is a big one
