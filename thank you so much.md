@@ -42,3 +42,4 @@ new chains, same shackles.
 - https://soundcloud.com/user-496349888/uicideboy-bingo-zuccenberg
 - https://soundcloud.com/g59/iamtheapocalypse
 - https://soundcloud.com/patrickdraper/suicideboys-kill-yourself-mix-part-i-iv
+- https://soundcloud.com/koldbloodedmusic/kold-blooded-x-uicideboy-666-below-prod-by-crim
