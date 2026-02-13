@@ -16,6 +16,8 @@ count of oxycontin i've popped in my entire life: ```132```
 <br>
 lines of cocaine done in my entire life: ```176.3```
 <br>
+scars made on my body (entire life): ```73```
+<br>
 money made (entire life): ```$983,524.57```
 <br>
 money spent (entire life): ```$922,834.93```
