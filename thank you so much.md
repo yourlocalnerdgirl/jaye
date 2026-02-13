@@ -22,8 +22,8 @@ Quite a lot actually, for once in my life, I've never felt this good, I feel uns
 About what I said earlier though (at this point this paragraph could be triggering but i doubt it for you) I'm used to being ignored my whole life, I first started cutting when I was eight, drinking when i was nine then getting high at ten, overall it really has been quite a journey, it went up and down, and at my lowest I stole a gun and tried to shoot myself, but ever since then (03/12/24) I've been making a slow, bumpy recovery, but I've made it this far, so why quit now?
 
 anyway thats my yap session<br>
-Sky <3<br>
-new chains, same shackles.
+  Sky <3<br>
+    new chains, same shackles.
 
 
 
