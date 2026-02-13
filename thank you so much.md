@@ -2,7 +2,7 @@
 
 - [what you did for me](#what-you-did)
 - [why im even doing this](#why-i-am-doing-this)
-- [how much did you actually make me feel better](#how-much-did-you-help-me?)
+- [how much did you actually make me feel better](#how-much-did-you-help-me)
 
 ## What You Did
 - First of all, just really being there for me is a big one
